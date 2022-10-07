@@ -13,7 +13,7 @@ Where can I use the 10-minute mail service?
 The following websites are highly recommended, they are all very fast to receive emails, some only take 5 seconds, it is best to collect them!
 
 
-1 10-minute mailbox, the fastest 5 seconds to receive emails, the bottom of the page can be extended to 60 minutes https://www.10-minutemail.com
+1 10-minute mailbox, the fastest 5 seconds to receive emails, you can be extended to 30 minutes,60 minutes and 24 hours https://www.10-minutemail.com
 
 2 10-minute mailbox, receive mail very fast https://10-minutemail.net
 
